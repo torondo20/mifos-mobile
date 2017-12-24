@@ -1,1 +1,1 @@
-1. Dilpreet Singh (http://github.com/dilpreet96) : Open source contributor
+1. abeljohn (https://github.com/torondo20) : Open source contributor
